@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @akcadev
+- I'm Founder of Ratera A.Ş
